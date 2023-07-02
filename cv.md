@@ -4,4 +4,4 @@
 
 *A young samurai with no skills or experience, searching for his way*
 
-*Discord RS-school: Акулбек(@Acoollbeck)*
+**Discord RS-school:** *Акулбек(@Acoollbeck)*
